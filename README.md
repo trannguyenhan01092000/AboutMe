@@ -10,4 +10,4 @@ Hello, I'm Huy =)))
 - Pinterest : https://www.pinterest.com/cuocsongandanh/
 - Github : https://github.com/trannguyenhan010920000
 - Email : trannguyenhan01092000@gmail.com, trannguyenhan01092000@yandex.com
-- Quora : https://www.quora.com/profile/Nguy%E1%BB%85n-Quang-Huy-39
+- Quora : https://www.quora.com/profile/Nguyen-Quang-Huy-42
