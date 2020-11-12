@@ -6,7 +6,7 @@ Hello, I'm Huy =)))
 - Twitter : https://twitter.com/cuocsongandanh
 - Ig : https://www.instagram.com/cuocsongandanh/
 - Reddit : https://www.reddit.com/user/trannguyenhan
-- Linkedln : https://www.linkedin.com/in/nguyen-quang-huy-25610b1a0/
+- Linkedln : https://www.linkedin.com/in/trannguyenhan/
 - Spiderum : https://spiderum.com/nguoi-dung/trannguyenhan01092000
 - Pinterest : https://www.pinterest.com/cuocsongandanh/
 - Github : https://github.com/trannguyenhan01092000
